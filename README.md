@@ -1,5 +1,5 @@
 # ESL1
-waiting for DS-2019
+already sent an email, waiting for reply or DS-2019.
 
 
 
