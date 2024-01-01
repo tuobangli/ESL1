@@ -1,1 +1,1 @@
-10-15
+Saipan Shining Star Hotel
