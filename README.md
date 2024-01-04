@@ -1,2 +1,1 @@
-Saipan Shining Star Hotel
-
+DHL
