@@ -1,1 +1,1 @@
-continute submit other papers.
+continute submit REDS: central moment
