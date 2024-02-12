@@ -1,1 +1,1 @@
-continute submit REDS: central moment
+continute submit metabolic directions
