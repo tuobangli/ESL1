@@ -1,2 +1,2 @@
-continute submit metabolic directions
+ submit metabolic directions to PNAS
 
