@@ -1,2 +1,2 @@
- submit metabolic directions to PNAS
+ invite Stefanie Ebeling
 
